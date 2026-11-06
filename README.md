@@ -1,3 +1,4 @@
+
  </div>
 <div align="center">
 
@@ -5,7 +6,7 @@
 <img width="26" height="21" alt="2f251f17_original" src="https://github.com/user-attachments/assets/8f333116-55ac-4292-8a58-c8e736331ad4" /> ![](https://komarev.com/ghpvc/?username=better-to-sleep&style=flat-square&color=F5F5F5&label=૮・ﻌ・ა　) <img width="26" height="21" alt="7a2cd3de_original" src="https://github.com/user-attachments/assets/0c84aa90-c1f3-4823-bbf5-ba98300d76a0" />
 
 
-<img width="70%" src="https://files.catbox.moe/o284z9.jpg">
+<img width="70%" src="<img width="736" height="414" alt="Без названия (5)" src="https://github.com/user-attachments/assets/92d3b170-6318-4a75-bf49-9127725873b0" />
 
 <sub><a href="https://vera-is-not-a-loser.atabook.org/" target="_blank">aтabook</a>ㅤ﹒⠀[rentry](https://rentry.co/better-to-sleep)ㅤ﹒ㅤ[strawpage](https://better-to-sleep.straw.page/)
 <details>
