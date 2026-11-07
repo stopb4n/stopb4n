@@ -8,7 +8,7 @@
 
 <img alt="(5)" src="https://i.pinimg.com/736x/e9/13/63/e91363e2376482f2cef12eb460fa4ce5.jpg" />
 
-<sub><a href="https://vera-is-not-a-loser.atabook.org/" target="_blank">aтabook</a>ㅤ﹒⠀[rentry](https://rentry.co/better-to-sleep)ㅤ﹒ㅤ[strawpage](https://better-to-sleep.straw.page/)  ﹒ㅤ[steam](https://steamcommunity.com/id/better-to-sleep/)
+<sub><a href="https://vera-is-not-a-loser.atabook.org/" target="_blank">aтabook</a>ㅤ﹒ㅤ[strawpage](https://better-to-sleep.straw.page/)  ﹒ㅤ[steam](https://steamcommunity.com/id/better-to-sleep/)
 <details>
 <summary>(..◜ᴗ◝..)つ</summary>
   <p align="center"> <sup><span style="color:#0f0f0f">𓂃 i don't mind c̱+̲ẖ even if we don't know eαch other.</span><br>
